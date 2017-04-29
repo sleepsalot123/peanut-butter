@@ -1,1 +1,1 @@
-# i lke peanut butter as well
+# i like peanut butter as well
